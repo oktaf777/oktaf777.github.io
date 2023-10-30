@@ -1,1 +1,1 @@
-oktaf777.gifthub.io
+oktaf777.github.io
